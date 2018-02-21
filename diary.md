@@ -1,1 +1,1 @@
-I want to visit Crete.
+I want to visit Chalkidiki.
